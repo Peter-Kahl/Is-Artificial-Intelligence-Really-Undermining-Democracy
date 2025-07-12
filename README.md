@@ -1,6 +1,6 @@
-# Today, I Mailed Substack Inc. a Formal Legal Notice
+# Is Artificial Intelligence Really Undermining Democracy?
 
-#### Fiduciary Breaches, Contractual Breaches, Intentional Interference, and Potential Class-Action Litigation
+#### A Critical Appraisal of Mark Coeckelbergh’s Why AI Undermines Democracy (2024)
 
 ![alt text](https://github.com/Peter-Kahl/Is-Artificial-Intelligence-Really-Undermining-Democracy/blob/main/mark_coeckelbergh_book_critique.jpg?raw=true)
 
